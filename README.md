@@ -1,2 +1,2 @@
-# pomelo.github.io
+# jessieicecream.github.io
 Yingrui's Website
